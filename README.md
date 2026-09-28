@@ -1,0 +1,1 @@
+# Hattrick-Control-Full-Version-Unlocked
